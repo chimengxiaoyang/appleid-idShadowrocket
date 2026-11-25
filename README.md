@@ -1,5 +1,5 @@
 # appleid-idShadowrocket
-**如需美区苹果ID，可自行注册或直接购买-><a href="[https://xiaohu837.net/buy/1](https://smilec.eu.cc/products)" rel="nofollow">传送门点✈这里</a>**
+**如需美区苹果ID，可自行注册或直接购买-><a href="https://smilec.eu.cc/products" rel="nofollow">传送门点✈这里</a>**
 <br>
 <br>
 
@@ -46,4 +46,4 @@
 > **一句话总结：**  
 > 如果你想解锁 App Store 的“完整形态”，拥有一个美区 Apple ID，是入门海外数字资源的第一步。
 
-如需美区苹果ID，可自行注册或直接购买-><a href="[https://xiaohu837.net/buy/1](https://smilec.eu.cc/products)" rel="nofollow">传送门点✈这里</a>
+如需美区苹果ID，可自行注册或直接购买-><a href="https://smilec.eu.cc/products" rel="nofollow">传送门点✈这里</a>
